@@ -1,4 +1,3 @@
-ddddd:dddd:wq
 dsdddddddddcs427
 dd=====
 
